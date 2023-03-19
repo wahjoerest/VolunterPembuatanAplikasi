@@ -10,3 +10,4 @@ Berikut daftar Volunter yang diterima:
 
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Wahyu Restu Pamuji, [Linkedin](https://www.linkedin.com/in/wahyurestupamuji/).
